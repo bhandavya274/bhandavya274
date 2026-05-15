@@ -1,6 +1,6 @@
 ## Hi there 👋
-# 💫 About Me:
-I'm a final year engineering student.
+I'm Bhandavya AR
+A final year engineering student.
 
 
 ## 🌐 Socials:
